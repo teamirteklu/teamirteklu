@@ -1,7 +1,7 @@
 What's up I’m @teamirteklu
 
 I'm currently learning HTML CSS & JavaScript. I'm mostly planning on working alone but I'll be posting my projects on here soon, so if any interest you
-dont hesitate to contact me!
+don't hesitate to contact me!
 
 You can reach me at teamirteklu@gmail.com!
 
